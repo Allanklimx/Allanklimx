@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Allan KLI
 - 👀 I’m interested in skateboard
-- 🌱 I’m currently learning create thins on pc
+- 🌱 I’m currently learning create things on pc
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
